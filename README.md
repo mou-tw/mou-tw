@@ -2,7 +2,7 @@
 
 <div align="left">
 
-<i>Let's Connect:</i>
+
 
 
 
